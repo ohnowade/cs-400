@@ -7,3 +7,4 @@ Wade and Congkai became the best of friends. They continued to meet up every day
 Wade and Congkai became inseperable, it was as if they truly were the same person. They even started sleeping in the same bed!
 
 To be honest, I don't really know what you are talking about. But I hope they can become really good friends and happily ever after.
+ok.
